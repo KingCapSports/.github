@@ -12,7 +12,7 @@ If you've been navigating the world of sports betting, chances are you've come a
 
 KingCapSports Full Access is a premium subscription service offering daily sports betting picks, insights, and exclusive content curated by Anthony Mann. Subscribers gain access to the exact plays King Cap is betting on, including bonus prop parlays, group messages, free picks, polls, and more. The service is hosted on Whop.com and is designed to provide bettors with expert analysis and strategies to enhance their betting success.
 
-[Join KingCapSports Full Access Now](https://kelexbawz.com/kingcapsports)
+[Join KingCapSports Full Access Now](https://whop.com/kingcapsportsdaily?a=kelechienwere1234)
 
 ---
 
@@ -26,7 +26,7 @@ KingCapSports Full Access offers flexible subscription plans to cater to differe
 
 Each plan provides full access to all features, including daily picks, bonus prop parlays, and community resources.
 
-[Subscribe to KingCapSports Full Access Today](https://kelexbawz.com/kingcapsports)
+[Subscribe to KingCapSports Full Access Today](https://whop.com/kingcapsportsdaily?a=kelechienwere1234)
 
 ---
 
@@ -57,7 +57,7 @@ Gain access to informational resources, including FAQs, tutorials, and insights 
 * **Community Support:** Join a supportive community of bettors and engage in discussions, contests, and more.
 * **Flexibility:** Choose from daily, weekly, or monthly subscription plans to suit your needs.
 
-[Experience the Benefits of KingCapSports Full Access](https://kelexbawz.com/kingcapsports)
+[Experience the Benefits of KingCapSports Full Access](https://whop.com/kingcapsportsdaily?a=kelechienwere1234)
 
 ---
 
@@ -86,7 +86,7 @@ KingCapSports Full Access has received overwhelmingly positive reviews from user
 
 These testimonials highlight the value and trust users place in KingCapSports Full Access.
 
-[Join the Satisfied Community of KingCapSports Subscribers](https://kelexbawz.com/kingcapsports)
+[Join the Satisfied Community of KingCapSports Subscribers](https://whop.com/kingcapsportsdaily?a=kelechienwere1234)
 
 ---
 
@@ -94,6 +94,6 @@ These testimonials highlight the value and trust users place in KingCapSports Fu
 
 KingCapSports Full Access offers a comprehensive sports betting service backed by years of experience and a strong community. With daily picks, exclusive content, and educational resources, it's a valuable tool for both novice and seasoned bettors. While the subscription cost may be a consideration, the potential benefits and community support make it a worthy investment for those serious about sports betting.
 
-[Ready to Elevate Your Sports Betting Game? Join KingCapSports Full Access Now](https://kelexbawz.com/kingcapsports)
+[Ready to Elevate Your Sports Betting Game? Join KingCapSports Full Access Now](https://whop.com/kingcapsportsdaily?a=kelechienwere1234)
 
 ---
